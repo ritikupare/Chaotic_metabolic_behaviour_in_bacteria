@@ -1,0 +1,1 @@
+# Chaotic_metabolic_behaviour_in_bacteria
